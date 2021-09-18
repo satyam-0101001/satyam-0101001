@@ -1,6 +1,6 @@
 - 👋 Hi, I’m nerd guy @satyam-0101001
 - 👀 I’m interested in learning things related to COMPUTERS, will upload my own repository soon 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... wait, not yet ! 
 - 📫 You can also get to know me on Instagram as @https.satyam.exe
 
 <!---
